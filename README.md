@@ -1,7 +1,5 @@
 # Plombier Paris 2 75002
 
-Plombier Paris 2 75002
-
 Plomberie doit être fait à droite! Il peut créer plus de problèmes et de dépenses si elle ne se fait pas correctement! Pas tout le monde est un plombier. Si vous n'êtes pas à la hauteur, le louer! Si vous pouvez le faire soi-même, ce qui est grand! Vous aurez besoin des bons outils et de savoir comment. Lisez cet article pour quelques conseils et astuces pratiques!
 
 Si un tuyau gèle jamais, vous devez vous assurer de couper l'eau. Cela permet de garder le tuyau d'éclater et plombier paris 2 tarif vous causant des dommages importants à votre domicile. Assurez-vous de couper l'eau à la vanne principale, puis ouvrez le robinet qui est plus proche de la conduite congelés de sorte qu'il peut drainer alors qu'il est dégeler.
